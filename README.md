@@ -9,7 +9,9 @@ Kuroit is offering an exceptional New Year's promotion on their VPS hosting serv
 [https://www.kuroit.com/](https://my.kuroit.com/aff.php?aff=263)
 
 ## Kuroit Coupon Code
-**Promotional Price:** £25/year. To make a purchase, visit the following link. [Click to see the latest promotions on the official website of Kuroit](https://my.kuroit.com/aff.php?aff=263)
+**Promotional Price:** £25/year. To make a purchase, visit the following link.
+
+[Click to see the latest promotions on the official website of Kuroit](https://my.kuroit.com/aff.php?aff=263)
 
 ## Kuroit Promotions
 Below is the breakdown of the VPS package details available under the New Year Sale:
